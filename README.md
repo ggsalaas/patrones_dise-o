@@ -1,4 +1,4 @@
 # patrones_dise-o
 
  #Video expliativo
- https://drive.google.com/file/d/1JMR-lc0sQRggHEx1i41syKBnl1St8smy/view?usp=drive_link
+https://1drv.ms/v/c/16d3177dec0cc39c/IQBDTvYy0A4-SqI0RKUHWG2lAZtAWFWdilXb5XR0MqBDl-U?e=2gN9o7
